@@ -1,3 +1,2 @@
-public class yesqueyoç {
-    lol
-}
+bombardeen la us
+
